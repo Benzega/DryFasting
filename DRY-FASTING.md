@@ -10,6 +10,7 @@ This document is provided for educational and informational purposes only and do
 This dry fasting protocol was adapted from the book "The Phoenix Protocol" by August Dunning. Read the book and/or watch the author's videos if you wish to understand the protocol, the science and the methods better.
 
 **Links & Resources**
+
 - [The Phoenix Protocol - Free Gutenberg PDF](https://archive.org/details/the-phoenix-protocol-dry-fasting-by-a-dunning/page/n69/mode/2up)
 - [August Dunning's YouTube channel](https://www.youtube.com/@augustdunning)
 
@@ -41,10 +42,10 @@ A dry fast can ultimately be undertaken without any specific preperations. Here'
 So sit back, relax, watch TV, listen to books, sleep and enjoy your dry fast!
 
 **Some tips:**
+
 - Boredom can be difficult to cope with during a fast. Make sure you have an ample supply of movies, shows or other amusements to keep you occupied.
 - Sleep as much as humanely possible.
 - Cold showers feel great.
-
 
 ## Post-fast (re-feeding)
 
@@ -60,12 +61,12 @@ If you fast for longer than 5 days, it is recommended to perform 1-2 post-fast e
 
 If you fast for less than 3 days, it is not necessary to perform an enema.
 
-**Notes**
+**Notes:**
 
 - Only use a medical grade enema kit.
 - Research how to perform an enema prior to doing so.
 
-**How to perpare a basic salt water enema solution**
+**How to perpare a basic salt water enema solution:**
 
 - Mix 3-4 cups of warm water with 2 teaspoons of table salt.
 
