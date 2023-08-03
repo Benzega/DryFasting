@@ -95,12 +95,12 @@ During the entire re-feeding stage, you want to focus on only eating whole, easi
 
 ### Step 1: Break the fast
 
-- **Sip over 1 hour:** 1/2 liter of water + 1 tsp. baking soda.
-- **Sip over 2 hours:** 1 liter of coconut water.
-- **Sip over 1 hour:** 1/2 liter of sparkling mineral water + a dissolved liquid/powder multi-vitamin.
-- **Sip over 1 hour:** 1 liter of bone broth.
+- Sip over 1 hour: 1/2 liter of water + 1 tsp. baking soda.
+- Sip over 2 hours: 1 liter of coconut water.
+- Sip over 1 hour: 1/2 liter of sparkling mineral water + a dissolved liquid/powder multi-vitamin.
+- Sip over 1 hour: 1 liter of bone broth.
 - Dissolve a probiotic in water and drink.
-- **Perform an enema (Optional: See above *Notes about post-fast enemas*)**
+- Perform an enema (Optional: See above *Notes about post-fast enemas*)
 
 - Continue to sip more water and bone broth.
 
@@ -115,14 +115,14 @@ You can sip liquids more liberally after the first 24 hours but we still need to
 - Dissolve a probiotic in water and drink.
 - 1 liter of bone broth.
 - Drink 2-4 glasses of water.
-- **Optional:** Fully blend vegetables (peppers, carrots, cauliflower, spinach) with water into a soup and sip gently.
+- Optional: Fully blend vegetables (peppers, carrots, cauliflower, spinach) with water into a soup and sip gently.
 
 #### Day 3
 
 Do the same steps as day 2.
 
-- **Perform an enema (Optional: See above *Notes about post-fast enemas*)**
-- **Optional:** Prepare some steamed cauliflower. Chew slowly and thouroughly.
+- Perform an enema (Optional: See above *Notes about post-fast enemas*)
+- Optional: Prepare some steamed cauliflower. Chew slowly and thouroughly.
 
 ### Step 3: Re-feeding (days 4-7)
 
